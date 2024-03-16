@@ -3,3 +3,5 @@ Aula de Web I com os professores João Siles e Davi Vilar na Etec Camargo Aranha
 
 ainda não sei como fazer a merda do coração!!!
 <3, então vai esse mesmo.
+
+♥=ameiiiii!!!!!
